@@ -1,1 +1,3 @@
-# HOGAN.WEGZ.DDOS-ATTCK1
+our wegz is complete 
+thank for watching 
+please sucscribe
